@@ -1,1 +1,1 @@
-# likelion_ais7_miniproject
+나 와기사자 어흥 🦁
