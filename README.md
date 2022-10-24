@@ -1,1 +1,1 @@
-나 와기사자 어흥 🦁
+# LIKELION_AIS7 MINIPROJECTS
